@@ -7,3 +7,6 @@ but my main hobbies are music production - composing and playing mostly
 and astronomy. 
 
 I am found here because I found some information on VCVRack but also because I am an owner of a BASTL KASTL. Somewhere on here there's alternative code to run on it. Maybe I'll find it somewhere?!
+I have to say that I am not familiar with how GitHub works so have found it difficult to find things on here in the past.
+
+Here's hoping it gets easier.... Hello "new" word.
